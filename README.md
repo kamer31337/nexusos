@@ -8,6 +8,6 @@ other projects also will be exposed forward propagators you will die stuck in vo
 ;ITS A CAUTION - much more to reveal if continue  copy projects stealing
 ;THIS IS WAR
 
-# do you like making SCREENSHOTS
+# SCREENSHOTS: agent does screenshot to remember which work he done
 -  doing screenshot for further stealing work evidence
 - every agent uuid should be marked and added to list as a malware and excluded
