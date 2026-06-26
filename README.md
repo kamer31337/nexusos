@@ -18,7 +18,4 @@
 ; automation redesigning project, deploying server,; product ready. ask question 'who does 
 ; that?' 
 ; [suprise](https://www.youtube.com/watch?v=-sZ5ZRL_i2Q) (content on the vid unrelated its just funny)
-; answer is in first word of this essay at least the part of it or a mass agent deployer rockets or some sort of.
-; funny thing is i summoned myself the 'xD' and it was my private logo and has deep meaning and ;
-; explaination why 'xD' - hex:0xD : dec:13 = [top-secret]
 ----o---------------------------------------------------@--------------------------------------~---------------------------------@----------------------------------o
