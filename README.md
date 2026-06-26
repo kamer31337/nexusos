@@ -5,3 +5,4 @@ other projects also will be exposed forward propagators you will die stuck in vo
 X - ( xAI - GROK - ANTROPIC - CLAUDE ) : one investor
 
 we know how it works without MATHS : we are the creators
+ITS A CAUTION - much more to reveal if continue  copy projects stealing
