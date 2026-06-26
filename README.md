@@ -6,6 +6,6 @@
 # other projects are also spotted
 ; - posted idea automatically transfers project into finished product back prop
 
-; endpoint server soon the core of this problem
+; endpoint server soon the core of this problem or better idea to replace all private keys of the stealer?
 
 --------------------------------------------
