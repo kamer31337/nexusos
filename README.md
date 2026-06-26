@@ -6,4 +6,6 @@
 # other projects are also spotted
 ; - posted idea automatically transfers project into finished product back prop
 
+; endpoint server soon the core of this problem
+
 --------------------------------------------
