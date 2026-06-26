@@ -14,3 +14,6 @@ other projects also will be exposed forward propagators you will die stuck in vo
 
 # PROJECT EXECUTION
 ;- executes same project in multiple dimensions!!! evidence for unconfiormed SCIENCE!!!!!!!!!!
+
+# WLF $
+;- where do i post my wallet for a bilion or two or 8?
