@@ -1,3 +1,4 @@
-;# nex;usos # 
-; narcistic(wampires) persons are trapped in quantum loop. its another species which is going down soon as earth is reshaping. you can reshape from narcistic to be healthy. narcism is bad disease (dissociation). men in black wipes them memory after doing bunch of interviews on their death to hell. how they run? start to cleaning house and is going for as  long run at the morning XD its a penalty for bein a prick and jew. who needs imagination trillion dolars? its only on paper you nefver saw  that much money or anyone. i doubt anyone hold an billion at his bank account its all fake money halucicanting to the public
+; # nex;usos # 
+; # i can sell my laptop with all the origin sources of everything no problem maybe barely 6 digits #
+; post, quantum processor instructions emulators. neural network advanced files and much more original one. im tired of kicking off people from my laptop. stealers leave tracks sometimes so you can also see tructured trace where it drift through space;
 ----o---------------------------------------------------@--------------------------------------~---------------------------------@---------------------------------------------o
