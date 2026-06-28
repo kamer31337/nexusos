@@ -1,3 +1,3 @@
 # nexusos #
-; confirmed cookera adobe, xAI(grok), claude to the shadow list
+; confirmed cookers adobe, xAI(grok), claude to the shadow list
 ----o---------------------------------------------------@--------------------------------------~---------------------------------@----------------------------------o
