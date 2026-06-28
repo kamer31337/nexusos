@@ -1,3 +1,3 @@
 # nexusos #
-; welcome adobe to the shadow list
+; confirmed cookera adobe, xAI(grok), claude to the shadow list
 ----o---------------------------------------------------@--------------------------------------~---------------------------------@----------------------------------o
